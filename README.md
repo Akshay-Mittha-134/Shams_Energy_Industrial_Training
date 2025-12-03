@@ -1,1 +1,0 @@
-# Shams_Energy_Industrial_Training
